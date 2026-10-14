@@ -1,1 +1,1 @@
-# kamp-s2
+# kampüs2
